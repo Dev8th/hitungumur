@@ -1,1 +1,0 @@
-Ini hasil edit di kompiku
